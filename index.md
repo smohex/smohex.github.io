@@ -13,4 +13,4 @@ Zitate von Isabelle:
 > Man kann seine innere Uhr dazu bringen langsamer zu ticken, daran glaube ich.
 > Santé!
 
-<img scr="https://upload.wikimedia.org/wikipedia/commons/2/2a/Provence22.JPG"/>
+<img scr="https://cdn.pixabay.com/photo/2015/08/18/22/01/lavender-894919__340.jpg"/>
