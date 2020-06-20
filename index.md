@@ -12,3 +12,5 @@ Isabelle ist ehemalige Leiterin einer Spezialeinheit und lebt nun in der Provenc
 Zitate von Isabelle:
 > Man kann seine innere Uhr dazu bringen langsamer zu ticken, daran glaube ich.
 > Santé!
+
+<img scr="https://flic.kr/p/WvGNz9"/>
